@@ -25,3 +25,6 @@
 
 [110-A_新生家長座談會_20210905](https://photos.app.goo.gl/znxgYmr8oeKNqBwL9)
 
+[110-A_新生週_20210906](https://photos.app.goo.gl/7w7QcTegispAT6K26) 
+#### (陸續更新)
+
